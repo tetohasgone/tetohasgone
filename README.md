@@ -1,11 +1,14 @@
 # hi / [solo.to/tetohasgone](https://solo.to/tetohasgone) - all links here
-im teto/miku/oleg/whatever and i do absolutely nothing<br>
-i tried to translate stuff but im getting bored too early<br>
-looking forward to be a fullstack dev but idk how much copium id need to actually make it<br>
-used to make discord bots on python and js and used to be frontender for small personal projects (like [apw](https://github.com/tetotf/apw) e.g.)
+i'm Oleg Serdechny a.k.a. TetoHasDied on the internet<br>
+19 years old from Russia, Saint Petersburg<br>
+...and i do absolutely nothing<br>
+i tried to translate stuff but i'm getting bored too early<br>
+looking forward to be a fullstack dev (really into GO and Svelte rn, i think it's nice combo)<br>
+used to make discord bots on python and used to be frontender for small personal projects (like [apw](https://github.com/tetotf/apw) e.g.)
 
-im 19, i have adhd, dyslexia, and i have zero urge to live<br>
-and yes i love cats, vocaloids and some weeb shit isnt that obvious
+and also i have "zoomer combo" (i guess i can call it like this) because of adhd and dyslexia<br>
+i love cats, loud elecronic music (and not only that), shitposts and some weeb shit<br>
+"the aristocats" has to be my favorite disney animation film af all
 
 >![ezgif com-speed](https://github.com/user-attachments/assets/62fe8c07-8557-4e2b-8737-5cd818daca6e)<br>
 >^ u rn :)
