@@ -8,7 +8,7 @@ used to make discord bots on python and used to be frontender for small personal
 
 and also i have "zoomer combo" (i guess i can call it like this) because of adhd and dyslexia<br>
 i love cats, loud elecronic music (and not only that), shitposts and some weeb shit<br>
-"the aristocats" has to be my favorite disney animation film af all
+"the aristocats" has to be my favorite disney animation film of all
 
 >![ezgif com-speed](https://github.com/user-attachments/assets/62fe8c07-8557-4e2b-8737-5cd818daca6e)<br>
 >^ u rn :)
