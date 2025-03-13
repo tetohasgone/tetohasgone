@@ -10,5 +10,5 @@ and also i have "zoomer combo" (i guess i can call it like this) because of adhd
 i love cats, loud elecronic music (and not only that), shitposts and some weeb shit<br>
 "the aristocats" has to be my favorite disney animation film of all
 
->![ezgif com-speed](https://github.com/user-attachments/assets/62fe8c07-8557-4e2b-8737-5cd818daca6e)<br>
+>![ezgif com-speed](https://github.com/user-attachments/assets/cf298292-086f-4e17-b1b7-2bad0227ddaa)<br>
 >^ u rn :)
