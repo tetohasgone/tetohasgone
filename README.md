@@ -1,5 +1,5 @@
 # hi / [solo.to/tetohasgone](https://solo.to/tetohasgone) - all links are here
-i'm Oleg Serdechny a.k.a. TetoHasDied on the internet<br>
+i'm Oleg Serdechny a.k.a. TetoHasGone on the internet<br>
 19 years old from Russia, Saint Petersburg<br>
 ...and i do absolutely nothing<br>
 i tried to translate stuff but i'm getting bored too early<br>
